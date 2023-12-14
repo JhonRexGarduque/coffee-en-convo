@@ -3,6 +3,7 @@
 COFFEE AND CONVOS
 
 Welcome to "Coffee and Convos," where every sip is a conversation starter and every dish is a delightful journey for your taste buds.
+Coffee and Convos offers a menu of delicious snacks and drinks where you can enjoy yourself and be satisfied.❤️
 
 ### MEMBERS
 Maria Amanda R. Labini
@@ -35,3 +36,5 @@ Lara Coreen A. Galoso
 [Blueberry Scone Image](https://in.pinterest.com/pin/399342691962341510/)
 
 [Background Lamp Image](https://in.pinterest.com/pin/others-work-in-2023--720364902916476799/)
+
+
