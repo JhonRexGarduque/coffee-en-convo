@@ -5,13 +5,13 @@ COFFEE AND CONVOS
 Welcome to "Coffee and Convos," where every sip is a conversation starter and every dish is a delightful journey for your taste buds.
 
 ### MEMBERS
-Maria Amanda Labini
+Maria Amanda R. Labini
 
-Aira Joy Genavia
+Aira Joy M. Genavia
 
-Jhon Rex Garduque
+Jhon Rex G. Garduque
 
-Carla Rose Goña
+Carla Rose C. Goña
 
 Lara Coreen A. Galoso
 
