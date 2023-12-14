@@ -6,9 +6,13 @@ Welcome to "Coffee and Convos," where every sip is a conversation starter and ev
 
 ### MEMBERS
 Maria Amanda Labini
+
 Aira Joy Genavia
+
 Jhon Rex Garduque
+
 Carla Rose Goña
+
 Lara Coreen A. Galoso
 
 ### REFERENCES
